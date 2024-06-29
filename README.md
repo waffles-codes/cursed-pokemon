@@ -1,1 +1,1 @@
-apparently this is the entry point for the site
+This site will let you experience the true horrors of the hit video Cursed Who's That Pokemon by the one and only WafflesYT
